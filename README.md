@@ -1,5 +1,5 @@
 
-. My real name is Thapelo Kholu A.K.A Chanii Rsa, (Male) by my artistry stage name. I'm from Ficksburg, a Town called Meqheleng, this is whereby I did my pre school, Primary school (Meqheleng Primary school) and High school (Marallaneng Senior Secondary School) and later on I Moved to Bloemfontein to further my studies at tertiary level to obtain my Degree in Bachelor of Business Administration.
+. My real name is Thapelo Kholu A.K.A Chanii Rsa by my artistry stage name. I'm from Ficksburg, a Town called Meqheleng, this is whereby I did my pre school, Primary school (Meqheleng Primary school) and High school (Marallaneng Senior Secondary School) and later on I Moved to Bloemfontein to further my studies at tertiary level to obtain my Degree in Bachelor of Business Administration.
 
 I startes doing music in 2016 when I was 15 and then endured further on this journey to working with Top artists like Kopper Waleh, DeejayZacca, Ntate Stunna and Cheez Beezy et.c this has put so much experience into my life especially with the path I took.
 
