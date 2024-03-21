@@ -21,7 +21,7 @@ In all my Career I have released 1 E.P (On My Way E. P) and 5 singles accompanie
 - Instagram:@chanii_rsa
 - X/Twitter:@TEK052002/Chanii Rsa
 - Youtube:https://www.youtube.com/@chaniirsa
-- website:Www.chaniirsa.com
+- website:https://<chaniirsa>.github.io.
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: ... Whenever my favourite artists is about to drop a new song I always wake up early to download the song
 
